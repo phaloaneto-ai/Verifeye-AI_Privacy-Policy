@@ -1,5 +1,4 @@
 Privacy Policy
-Effective Date: 24/04/2026, 10:57:55
 
 Powered by Usercentrics
 Introduction and organizational info
